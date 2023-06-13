@@ -1,1 +1,1 @@
-### AD Block & Function Script
+### By @ddgksf2013
